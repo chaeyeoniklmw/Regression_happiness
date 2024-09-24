@@ -5,5 +5,5 @@
 ![스크린샷 2024-09-24 233536](https://github.com/user-attachments/assets/214146a8-4609-44c9-a53e-47c157dfd943)
 ![스크린샷 2024-09-24 233548](https://github.com/user-attachments/assets/61418a9c-7ebc-48d0-93fe-a79df3e1cfbc)
 ![스크린샷 2024-09-24 233559](https://github.com/user-attachments/assets/121dd9bb-1c60-4eac-8fa2-58da957c0d9f)
-![스크린샷 2024-09-24 233608](https://github.com/user-attachments/assets/d5c55975-734a-4581-bbb3-c0c70708fd73)
+![스크린샷 2024-09-24 233559](https://github.com/user-attachments/assets/065b33d3-72a4-402d-84f1-dc2c3d99040f)
 ![스크린샷 2024-09-24 233621](https://github.com/user-attachments/assets/ce00761e-bea8-4d40-aeac-b1d8b756d894)
